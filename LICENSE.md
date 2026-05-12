@@ -1,4 +1,4 @@
-# 
+# Get the ultimate NordPass for macOS plugin with NordPass for macOS advanced Plugin - credit-card-storage and cross-device-sync. Featuring credit-card-storage and
 
 
 
